@@ -2,7 +2,7 @@
 
 Atividade avaliativa prática – 4º bimestre
 
-## Integrantes
+## Aluna
 
 - Maria Luisa Mendonça
 
